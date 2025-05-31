@@ -1,1 +1,1 @@
-# laundry-room-decor-ideas-inspo
+# Laundry-Room-Decor
